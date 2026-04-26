@@ -1,1 +1,3 @@
 # badges
+i WANT SHARK BADGES
+OK HHEHEHEHEE
